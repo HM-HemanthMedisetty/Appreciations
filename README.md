@@ -1,4 +1,4 @@
-# Appreciations | Recognitions
+# Appreciations | Recognitions | Blurred content is of non shareable information, sharing that is against to my workplace policy violation. Sorry for the inconvenience.
 
 #1
 ![image](https://user-images.githubusercontent.com/90131327/132466927-66c23eb6-fad0-4a56-adda-e230fe25adf3.png)
